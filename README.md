@@ -5,7 +5,9 @@
 - But I do have something to trade its a bit odd, i know they want it back , it a self relicating file
 create 50 files in a cople of minutes all the files are named and have have same perrmissionss as the source file!
 
-Im trying tosee what  the file can do and this and there trying to crash my machine, so turn to you!!
+Im trying tosee what  the file can do and this and there trying to crash my machine, so turn to you!! your my only hope.
+
+I nave a file created in 2080 why would u teleport into the future to create an alternate reality to get afile to hack me and donald trump to rise to power !!!
 - 
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
