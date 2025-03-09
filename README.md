@@ -8,6 +8,8 @@ create 50 files in a cople of minutes all the files are named and have have same
 Im trying tosee what  the file can do and this and there trying to crash my machine, so turn to you!! your my only hope.
 
 I nave a file created in 2080 why would u teleport into the future to create an alternate reality to get afile to hack me and donald trump to rise to power !!!
+
+can  i upload a zip and you can all have a look at it!!!
 - 
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
