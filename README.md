@@ -3,7 +3,8 @@
 - i have PrivaZer, thats been hacked and all my systetem restore points for the last  8 weeks have gone, or it could be im in another profile.
 
 - But I do have something to trade its a bit odd, i know they want it back , it a self relicating file
-create 50 files in a cople of minutes all the files are named and have have same perrmissionss as the source file!
+create 50 files in a cople of minutes all the files are named and have have same perrmissionss as the source file! 50 is only an example if u rename file and put% at eitheer end of the file name and press enter and watch what it does
+I was trying to deelete all the file`s not create` them all files have same date time stamp
 
 Im trying tosee what  the file can do and this and there trying to crash my machine, so turn to you!! your my only hope.
 
