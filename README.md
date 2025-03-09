@@ -11,6 +11,9 @@ Im trying tosee what  the file can do and this and there trying to crash my mach
 I nave a file created in 2080 why would u teleport into the future to create an alternate reality to get afile to hack me and donald trump to rise to power !!!
 
 can  i upload a zip and you can all have a look at it!!!
+
+turns out i cant, my email is dodgydiamondgeezer@hotmail.com , ref the Husker DU zip
+
 - 
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
