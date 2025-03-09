@@ -12,7 +12,7 @@ I nave a file created in 2080 why would u teleport into the future to create an 
 
 can  i upload a zip and you can all have a look at it!!!
 
-turns out i cant, my email is dodgydiamondgeezer@hotmail.com , ref the Husker DU zip
+
 
 - 
 - 👀 I’m interested in ...
